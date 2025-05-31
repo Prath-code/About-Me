@@ -36,6 +36,12 @@ Projects with [@MilanKathiriya](https://github.com/MilanKathiriya)
 
 ---
 
+## 🤝 My other account
+Account [@Prath-code2](https://github.com/Prath-code2)  
+...and anyone excited about **AI/ML** and making cool stuff!
+
+---
+
 ## 📫 How to Reach Me
 You can connect with me here on GitHub.  
 
